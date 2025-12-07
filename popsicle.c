@@ -1,1 +1,0 @@
-We are Charlie Kirk.
